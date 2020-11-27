@@ -1,7 +1,7 @@
 ![Img](https://imagesvc.meredithcorp.io/v3/mm/image?q=85&c=sc&poi=face&w=1600&h=838&url=https%3A%2F%2Fstatic.onecms.io%2Fwp-content%2Fuploads%2Fsites%2F28%2F2017%2F02%2Feiffel-tower-paris-france-EIFFEL0217.jpg)
 ![Img](https://www.louvre.fr/sites/default/files/medias/medias_images/images/louvre-la-cour-napoleon-et-la-pyramide.jpg)
-![Img](https://blog.parispass.com/know-before-you-go-palace-of-versailles/)
 ![Img](https://handluggageonly.co.uk/wp-content/uploads/2015/11/Hand-Luggage-Only-1.jpg)
 ![Img](https://globalgrasshopper.com/wp-content/uploads/2011/04/Cinque-Terre-Italy.jpg)
 ![Img](https://parade.com/wp-content/uploads/2018/01/rome-italy-coliseum-ruins-ftr.jpg)
 ![Img](https://www.voyagetips.com/wp-content/uploads/2017/06/Florence-840x276.jpg)
+![Img](https://images.adsttc.com/media/images/517e/a80b/b3fc/4b0c/e700/000a/newsletter/antoni-gaudi-spain-barcelona-casa-mila-01-samuel-ludwig.jpg?1367255048)
